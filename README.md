@@ -1,1 +1,0 @@
-# alihanpehlivan.github.io
